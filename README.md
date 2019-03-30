@@ -1,6 +1,6 @@
 # Treha
 
-Get in contact for repo access.
+Get in contact for repo access!
 
 ---
 Treha design and concept art:
