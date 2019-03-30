@@ -3,9 +3,9 @@
 Get in contact for repo access.
 
 ---
-Design Doc:
+Treha design and concept art:
 
-https://docs.google.com/document/d/1FInAnric6g_qoS3679-3Sk84Nmjz0p9DuCdELC9P8Ag/edit?usp=sharing
+https://drive.google.com/open?id=1-k1pw2pRxidG5YEFryKQhclM2RdAuzyA
 ---
 
 ©2019 Treha
