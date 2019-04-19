@@ -1,4 +1,4 @@
-# Treha
+# Treha.online
 
 Get in contact for repo access!
 
