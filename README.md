@@ -1,6 +1,6 @@
 # Treha.online
 
-Get in touch for repo access!
+Get in touch for repo collab!
 
 ---
 
