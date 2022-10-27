@@ -10,10 +10,6 @@ Chat:
 https://GetFire.net/Treha
 
 
-Crowdfund:
-
-https://www.patreon.com/Treha
-
 
 Design and concept art:
 
