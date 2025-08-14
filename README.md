@@ -18,4 +18,4 @@ https://drive.google.com/open?id=1-k1pw2pRxidG5YEFryKQhclM2RdAuzyA
 
 ---
 
-©2023 Treha.online
+©2025 Treha.online
